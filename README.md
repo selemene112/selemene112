@@ -6,3 +6,7 @@ I've always been captivated by the concept behind server functionality, where ea
 
 To me, this process feels like living a new life full of invigorating challenges. The world of programming is my passion, and I feel I've found what I've been searching for all along within it.
 
+my motivation to live life
+
+SSB3YW50IHRvIHJldHVybiB0byBteSBjcmVhdG9yIGluIHRoZSBiZXN0IHdheSBhbmQgYWx3YXlzIHdhbnQgdG8gYmUgbmVhciBoaW0gZm9yZXZlcg==
+
